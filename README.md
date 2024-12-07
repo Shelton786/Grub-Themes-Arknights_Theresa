@@ -10,7 +10,7 @@ https://www.bilibili.com/video/BV1t3i6YsEtz
 
 下载网站：
 
-[Arknights Shu 5806 Grub Themes](https://www.gnome-look.org/p/2200792)
+[Arknights Theresa Grub Themes](https://www.gnome-look.org/p/2229717)
 
 ## 效果展示
 
