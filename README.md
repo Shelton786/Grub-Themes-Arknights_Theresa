@@ -6,7 +6,7 @@ The Arknights Theresa Grub themes which made by Booker786~
 
 演示视频
 
-https://www.bilibili.com/video/BV1gcpMeRE4d
+https://www.bilibili.com/video/BV1t3i6YsEtz
 
 下载网站：
 
